@@ -1,4 +1,0 @@
-# Harjot Singh's Resume
-
-
-
